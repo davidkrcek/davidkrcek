@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning a lot of stuff
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: david@krcek.de
-- 😄 Pronouns: he/him but really ist doesn't matter
+- 😄 Pronouns: he/him but really it doesn't matter
 - ⚡ Fun fact: Don't be a dick
 
 <!---
